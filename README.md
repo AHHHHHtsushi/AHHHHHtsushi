@@ -14,3 +14,5 @@ Iam a filipino <3 haha diko alam ano pang ilagay ko dito..
 
 
 I MADE A STRAWPAGE ❗❗❗❗❗❗❗ GUYS GUYS PLSSSS CHECK IT OUT IM BEGGING YOU
+
+GUYS GUYS I MADE 2 STRAWPAGES!!!! TWOOOOOOOOOOOOOO !!!
