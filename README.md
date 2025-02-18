@@ -1,30 +1,29 @@
-HELLO ! (≧∇≦)ﾉ 
+𝑯𝑬𝑳𝑳𝑶 ! (≧∇≦)ﾉ 
+
+୨୧
 
 
-☆
+ғʀᴏᴍ ᴍʏ ᴘʀᴏғɪʟᴇ, ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ "sᴜᴋɪ" ɪ ᴍᴀɪɴʟʏ ᴘʟᴀʏ ᴘᴏɴʏᴛᴏᴡɴ/ᴀʟᴛʜᴏᴜɢʜ ɪᴍ ᴍᴏsᴛʟʏ ᴀғᴋ ʙᴜᴛ ᴜɴʟᴇss ʏᴏᴜ ᴡᴀɴɴᴀ ᴛᴀʟᴋ ɪ ᴄᴀɴ ʏᴀᴘ(●ˇ∀ˇ●) 
+ɪᴅᴋ ᴡʜᴀᴛ ᴇʟsᴇ ᴛᴏ ᴘᴜᴛ, ᴜʜʜ
 
-
-from my profile, you can call me "Suki" I mainly play ponytown/although im mostly afk but unless you wanna talk i can yap(●ˇ∀ˇ●) 
-idk what else to put, uhh
-
-NOWADAYS! im in the SG/squid game area, mostly hiding behind this tree...
+ɴᴏᴡᴀᴅᴀʏs! ɪᴍ ɪɴ ᴛʜᴇ sɢ/sǫᴜɪᴅ ɢᴀᴍᴇ ᴀʀᴇᴀ, ᴍᴏsᴛʟʏ ʜɪᴅɪɴɢ ʙᴇʜɪɴᴅ ᴛʜɪs ᴛʀᴇᴇ...
 
   
   <img width="319" alt="Screenshot 2025-02-18 at 5 29 27 PM" src="https://github.com/user-attachments/assets/87ca0a39-167c-4a82-9223-1f1950d7a175" />
 
   
 
-on ponytown, c + h are completely fine with me !ヾ(≧ ▽ ≦)ゝ I mostly prefer whisper to talk, but if its some goofy shenanigans then i'd chat in public.
+ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ, ᴄ + ʜ ᴀʀᴇ ᴄᴏᴍᴘʟᴇᴛᴇʟʏ ғɪɴᴇ ᴡɪᴛʜ ᴍᴇ !ヾ(≧ ▽ ≦)ゝ ɪ ᴍᴏsᴛʟʏ ᴘʀᴇғᴇʀ ᴡʜɪsᴘᴇʀ ᴛᴏ ᴛᴀʟᴋ, ʙᴜᴛ ɪғ ɪᴛs sᴏᴍᴇ ɢᴏᴏғʏ sʜᴇɴᴀɴɪɢᴀɴs ᴛʜᴇɴ ɪ'ᴅ ᴄʜᴀᴛ ɪɴ ᴘᴜʙʟɪᴄ.
 
+୨୧
 
-Iam a filipino <3 haha diko alam ano pang ilagay ko dito..
+ɪᴀᴍ ᴀ ғɪʟɪᴘɪɴᴏ <3 ʜᴀʜᴀ ᴅɪᴋᴏ ᴀʟᴀᴍ ᴀɴᴏ ᴘᴀɴɢ ɪʟᴀɢᴀʏ ᴋᴏ ᴅɪᴛᴏ..
 
 
 ...(´▽`ʃ♡ƪ)
 
 
-I MADE A STRAWPAGE ❗❗❗❗❗❗❗ GUYS GUYS PLSSSS CHECK IT OUT IM BEGGING YOU
-
+𝑰 𝑴𝑨𝑫𝑬 𝑨 𝑺𝑻𝑹𝑨𝑾𝑷𝑨𝑮𝑬 ❗❗❗❗❗❗❗📢  𝑮𝑼𝒀𝑺 𝑮𝑼𝒀𝑺 𝑷𝑳𝑺𝑺𝑺𝑺 𝑪𝑯𝑬𝑪𝑲 𝑰𝑻 𝑶𝑼𝑻 𝑰𝑴 𝑩𝑬𝑮𝑮𝑰𝑵𝑮 𝒀𝑶𝑼 
 
 ☆
 
