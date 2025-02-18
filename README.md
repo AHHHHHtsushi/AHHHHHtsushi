@@ -4,6 +4,8 @@ HELLO ! (≧∇≦)ﾉ
 from my profile, you can call me "Suki" I mainly play ponytown/although im mostly afk but unless you wanna talk i can yap(●ˇ∀ˇ●) 
 idk what else to put, uhh
 
+  NOWADAYS! im in the SG/squid game area, mostly hiding behind this tree... 
+
 on ponytown, c + h are completely fine with me !ヾ(≧ ▽ ≦)ゝ I mostly prefer whisper to talk, but if its some goofy shenanigans then i'd chat in public.
 
 
@@ -14,5 +16,3 @@ Iam a filipino <3 haha diko alam ano pang ilagay ko dito..
 
 
 I MADE A STRAWPAGE ❗❗❗❗❗❗❗ GUYS GUYS PLSSSS CHECK IT OUT IM BEGGING YOU
-
-GUYS GUYS I MADE 2 STRAWPAGES!!!! TWOOOOOOOOOOOOOO !!!
