@@ -2,7 +2,6 @@ HELLO ! (≧∇≦)ﾉ
 
 
 ☆
-![sea banner !](https://github.com/user-attachments/assets/41b63ffc-af94-47e0-9de7-8392f7511797)
 
 
 from my profile, you can call me "Suki" I mainly play ponytown/although im mostly afk but unless you wanna talk i can yap(●ˇ∀ˇ●) 
@@ -25,3 +24,11 @@ Iam a filipino <3 haha diko alam ano pang ilagay ko dito..
 
 
 I MADE A STRAWPAGE ❗❗❗❗❗❗❗ GUYS GUYS PLSSSS CHECK IT OUT IM BEGGING YOU
+
+
+☆
+
+![sea banner !](https://github.com/user-attachments/assets/f1c81d39-05ce-403a-8cb6-2dee525eab2f)
+
+
+☆
