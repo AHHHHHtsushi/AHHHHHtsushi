@@ -1,5 +1,9 @@
 HELLO ! (≧∇≦)ﾉ 
+
+
 ☆
+![sea banner !](https://github.com/user-attachments/assets/41b63ffc-af94-47e0-9de7-8392f7511797)
+
 
 from my profile, you can call me "Suki" I mainly play ponytown/although im mostly afk but unless you wanna talk i can yap(●ˇ∀ˇ●) 
 idk what else to put, uhh
