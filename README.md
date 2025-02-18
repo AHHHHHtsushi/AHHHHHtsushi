@@ -4,7 +4,9 @@ HELLO ! (≧∇≦)ﾉ
 from my profile, you can call me "Suki" I mainly play ponytown/although im mostly afk but unless you wanna talk i can yap(●ˇ∀ˇ●) 
 idk what else to put, uhh
 
-  NOWADAYS! im in the SG/squid game area, mostly hiding behind this tree...
+NOWADAYS! im in the SG/squid game area, mostly hiding behind this tree...
+
+  
   <img width="319" alt="Screenshot 2025-02-18 at 5 29 27 PM" src="https://github.com/user-attachments/assets/87ca0a39-167c-4a82-9223-1f1950d7a175" />
 
   
