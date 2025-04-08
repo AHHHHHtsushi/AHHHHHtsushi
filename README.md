@@ -9,7 +9,11 @@ discord woho      <img width="23" alt="Screenshot 2025-04-08 at 8 14 31 PM" sr
 
 <img width="248" alt="Screenshot 2025-04-08 at 7 47 08 PM" src="https://github.com/user-attachments/assets/68cbd493-2ac6-4167-88fd-459b8264621b" 
   BOOOO
-BOOOOOOOOO/>
+BOOOOOOOOO
+  
+  booo
+  booo
+  />
 
 
 ☆
