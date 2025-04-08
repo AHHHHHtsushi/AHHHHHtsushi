@@ -1,6 +1,6 @@
 THIS is a cutesy t
 
-discord woho      <img width="73" alt="Screenshot 2025-04-08 at 8 14 31 PM" src="https://github.com/user-attachments/assets/1c47460b-75e8-469b-be56-08000eb2b431" />
+discord woho      <img width="23" alt="Screenshot 2025-04-08 at 8 14 31 PM" src="https://github.com/user-attachments/assets/1c47460b-75e8-469b-be56-08000eb2b431" />
 
 
 ☆
