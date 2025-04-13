@@ -14,7 +14,7 @@
 
 
 
-ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. ![Screenshot_2025-04-13_at_7 21 53_PM-removebg-preview](https://github.com/user-attachments/assets/cf6f6196-98f4-451d-abd8-997fa130a803)
+ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="https://github.com/user-attachments/assets/cf6f6196-98f4-451d-abd8-997fa130a803"  />
 
 
 
