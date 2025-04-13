@@ -14,7 +14,7 @@
 
 
 
-ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="Screenshot_2025-04-13_at_7 21 53_PM-removebg-preview" src="https://github.com/user-attachments/assets/381eff24-590b-4264-ba47-f539ce825069" />
+ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="55" alt="Screenshot 2025-04-13 at 7 59 47 PM-Photoroom" src="https://github.com/user-attachments/assets/5e656ac2-d3a7-4617-bb8e-6abced694d69" />
 
 
 
