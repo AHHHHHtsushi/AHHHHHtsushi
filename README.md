@@ -14,7 +14,8 @@
 
 
 
-ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="Screenshot_2025-04-13_at_7 21 53_PM-removebg-preview" src="https://github.com/user-attachments/assets/c153a033-559d-44cf-b3b0-aeb3ce8f8a6a" />
+ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="Screenshot_2025-04-13_at_7 21 53_PM-removebg-preview" src="https://github.com/user-attachments/assets/381eff24-590b-4264-ba47-f539ce825069" />
+
 
 
 
