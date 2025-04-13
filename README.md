@@ -8,6 +8,6 @@
 
 
 
-  <i width="50" alt="![Doukyusei _3](https://github.com/user-attachments/assets/53497d9d-7b25-4799-a618-6c342ec15d42)"  />
+        ![Doukyusei _3](https://github.com/user-attachments/assets/53497d9d-7b25-4799-a618-6c342ec15d42)"
 
 
