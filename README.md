@@ -14,7 +14,7 @@
 
 
 
-ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="Screenshot_2025-04-15_at_12 00 35_AM-removebg-preview" src="https://github.com/user-attachments/assets/16aa15a0-3551-4bff-ac17-d9784a0911ff" />
+ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="Adobe Express - file" src="https://github.com/user-attachments/assets/c62fe088-39a9-4196-914a-46301245eb00" />
 
 
 
