@@ -14,7 +14,7 @@
 
 
 
-ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="55" alt="Screenshot 2025-04-13 at 7 59 47 PM-Photoroom" src="https://github.com/user-attachments/assets/5e656ac2-d3a7-4617-bb8e-6abced694d69" /> CHANGE KEROPPI AND PUT WHITE OUTLINE
+ᴍʏ ɴᴀᴍᴇ ɪs ❝ ᴄᴏʟʟᴇᴇɴ❞ , ʏᴏᴜ ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ❝ ʟɪɴɢ ❞ . ɪ ɢᴏ ʙʏ ʜᴇ/ʜɪᴍ ᴘʀᴏɴᴏᴜɴs. <img width="50" alt="Screenshot_2025-04-15_at_12 00 35_AM-removebg-preview" src="https://github.com/user-attachments/assets/16aa15a0-3551-4bff-ac17-d9784a0911ff" />
 
 
 
