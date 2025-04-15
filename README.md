@@ -21,6 +21,6 @@
 
 
 ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ <img width="20" alt="Screenshot_2025-04-15_at_10 27 38_PM-removebg-preview" src="https://github.com/user-attachments/assets/9f96913a-02c5-492e-9e67-309f7185bb52" />
-, ɪᴀᴍ ᴍᴏsᴛʟʏ ᴀғᴋ ᴏʀ ᴄᴜᴅᴅʟɪɴɢ ᴡɪᴛʜ ᴀ ғʀɪᴇɴᴅ ᴏғ ᴍɪɴᴇ, ɪғ ɴᴏᴛ, ɪᴀᴍ ᴊᴜsᴛ ʙᴇɪɴɢ ᴀ ʟᴏɴᴇʀ sᴏᴍᴇᴡʜᴇʀᴇ. <img width="30" alt="Screenshot_2025-04-15_at_10 33 32_PM-removebg-preview" src="https://github.com/user-attachments/assets/a3541a44-6320-48fb-8454-1b8b42b10727" />
+, ɪᴀᴍ ᴍᴏsᴛʟʏ ᴀғᴋ ᴏʀ ᴄᴜᴅᴅʟɪɴɢ ᴡɪᴛʜ ᴀ ғʀɪᴇɴᴅ ᴏғ ᴍɪɴᴇ, ɪғ ɴᴏᴛ, ɪᴀᴍ ᴊᴜsᴛ ʙᴇɪɴɢ ᴀ ʟᴏɴᴇʀ sᴏᴍᴇᴡʜᴇʀᴇ. <img width="50" alt="Screenshot_2025-04-15_at_10 33 32_PM-removebg-preview" src="https://github.com/user-attachments/assets/a3541a44-6320-48fb-8454-1b8b42b10727" />
 
 
