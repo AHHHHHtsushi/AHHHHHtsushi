@@ -20,6 +20,6 @@
 
 
 
-ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ![Screenshot_2025-04-15_at_10 27 38_PM-removebg-preview](https://github.com/user-attachments/assets/9f96913a-02c5-492e-9e67-309f7185bb52)
+ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ <img width="50" alt="Screenshot_2025-04-15_at_10 27 38_PM-removebg-preview" src="https://github.com/user-attachments/assets/9f96913a-02c5-492e-9e67-309f7185bb52" />
 , ɪᴀᴍ ᴍᴏsᴛʟʏ ᴀғᴋ ᴏʀ ᴄᴜᴅᴅʟɪɴɢ ᴡɪᴛʜ ᴀ ғʀɪᴇɴᴅ ᴏғ ᴍɪɴᴇ, ɪғ ɴᴏᴛ, ɪᴀᴍ ᴊᴜsᴛ ʙᴇɪɴɢ ᴀ ʟᴏɴᴇʀ sᴏᴍᴇᴡʜᴇʀᴇ.
 
