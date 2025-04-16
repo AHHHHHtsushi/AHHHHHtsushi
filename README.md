@@ -38,7 +38,7 @@
 
 
 
-<img width="150" alt="Screenshot 2025-04-16 at 9 19 57 PM-Photoroom" src="https://github.com/user-attachments/assets/6c5b5fb1-fa25-40b1-ae13-5260d5205c53" /> 
+<img width="210" alt="Screenshot 2025-04-16 at 9 19 57 PM-Photoroom" src="https://github.com/user-attachments/assets/6c5b5fb1-fa25-40b1-ae13-5260d5205c53" /> 
 
 
 
