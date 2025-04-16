@@ -48,7 +48,6 @@ ___________________☕ ᝰ.ᐟ 𝑨𝑩𝑶𝑽𝑬 𝑻𝑯𝑬 𝑪𝑨𝑭�
 
 
 
-<img width="100" alt="pixil-gif-drawing" src="https://github.com/user-attachments/assets/a2776053-efe4-4b8f-a8e6-773e563d1e83" />
-
+<img width="200" alt="pixil-layer-Background - Frame2" src="https://github.com/user-attachments/assets/b018ce45-b71b-456d-9266-de31ab031b31" />
 
 
